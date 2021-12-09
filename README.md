@@ -1,1 +1,1 @@
-### I don't like contribution graph 🤔
+### I don't like to show my contribution graph 🤔
